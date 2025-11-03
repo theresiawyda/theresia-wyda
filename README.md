@@ -4,6 +4,6 @@ With over **33 years of experience** in nursing an public health services, I've 
 ### What I'm currently learning:
 - Data entry automation & quality assurance
 - AI model annotation & evaluation
-- English - Indonesian translation for tecnical content
+- English - Indonesian translation for technical content
 ### Let's connect:
 [LinkedIn](https://www.linkedin.com/in/theresia-wyda-5b13b5224)
